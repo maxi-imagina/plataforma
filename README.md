@@ -1,2 +1,0 @@
-# plataforma
-plataforma London Institute
